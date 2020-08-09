@@ -1,0 +1,1 @@
+# Acer-V3-572G-clover
